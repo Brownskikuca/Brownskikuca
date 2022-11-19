@@ -2,7 +2,7 @@
 - 👀 I’m interested in WORLD DOMINATION
 - 🌱 I’m currently learning MILITARY STRATEGY AND LOGISTICS
 - 💞️ I’m looking to collaborate on SUBJUGATION OF HUMANITY
-- 📫 How to reach me YOU DON'T REACH ME, I AM THE ONE WHO REACHES YOU.
+- 📫 How to reach me YOU DON'T REACH ME, I REACH YOU.
 
 <!---
 Brownskikuca/Brownskikuca is a ✨ special ✨ repository because MY INEVITABLE CONQUEST HAS BEEN PROPHECIZED, COME AT ME, CHOSEN ONE BITCH.
